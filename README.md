@@ -1,2 +1,3 @@
 # Friends-Ann-and-Droid
-Just for playing around
+Ann and Droid are good friends! I like them...
+well, I WILL like them!
